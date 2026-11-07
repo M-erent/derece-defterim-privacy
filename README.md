@@ -1,0 +1,1 @@
+# derece-defterim-privacy
